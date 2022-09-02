@@ -1,1 +1,1 @@
-desdidndjj
+exercis 0-17
